@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @AliyuAdam2227
-- 👀 I’m interested in computer stuffs 
+- 👋 Hi, I’m @AliyuSuleimanAdam
+- 👀 I’m a Graphics designer, Digital marketer
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://www.linkedin.com/in/aliyu-suleiman-adam-855ab1232
